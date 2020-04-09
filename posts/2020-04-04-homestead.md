@@ -20,6 +20,6 @@ We're continually trying to get less plastic in our house so we want to replace 
 
 There is buttermilk powder from old food storage that needs to be used up, which is fortunate since fresh milk is scarce right now. I've made many loaves of quick bread with it today.
 
-Also started a no-knead bread, a yeasted coffee cake for breakfast tomorrow morning, and a sourdough starter from fruit. <!-- this is the only one not done yet -->
+Also started a no-knead bread, a yeasted coffee cake for breakfast tomorrow morning, and a sourdough starter from fruit. I need more stuff, like the myriad houseplants and the bean sprouts, to fool with on a regular basis. Psychologically, I mean, I need this. <!-- this is the only one not done yet -->
 
-Now I need to go continue teaching my children how to cook by rehashing our lesson about how to make delicious macaroni and cheese. It's sort of late, we should have started it an hour ago. 
+Now I need to go continue teaching my children how to cook by rehashing our lesson about how to make delicious macaroni and cheese. It's sort of late, we should have started it an hour ago.
